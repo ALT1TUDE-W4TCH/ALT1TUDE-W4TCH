@@ -1,7 +1,7 @@
 ![ezgif-1-3e408e5bde](https://github.com/user-attachments/assets/2af2eb0a-182f-4706-82d5-8e060cc796a3)
 ![ezgif-1-dcddb566b7](https://github.com/user-attachments/assets/df1010f0-1a14-42fb-9a11-b2433be653d1)
 
-**❝ Ｓｃａｒｙ？ Ｍｙ ｇｏｄ， ｙｏｕ＇ｒｅ ｄｉｖｉｎｅ！❞**
+**❝ Ｕｎ　ｅｎｓｅｍｂｌｅ　ｄ＇ｅｎｆａｎｔｓ．．❞**
 
 ════ ⋆★⋆ ════
 
@@ -21,6 +21,8 @@
 
 
 PLEASE DO FEEL FREE TO INT, C+H OR WHISPER ME IF YOU NEED SOMETHING, MOST OF THE TIME I'M EITHER DISTRACTED, OR AFK!
+
+**❝ Ｌａ　ｇａｌａｘｉｅ　ｓ＇éｔｅｎｄ．．❞**
 
 ![ezgif-1-dcddb566b7](https://github.com/user-attachments/assets/df1010f0-1a14-42fb-9a11-b2433be653d1)
 ![ezgif-1-3e408e5bde](https://github.com/user-attachments/assets/2af2eb0a-182f-4706-82d5-8e060cc796a3)
