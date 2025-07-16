@@ -10,7 +10,7 @@
 
 𝗗𝗢 𝗡𝗢𝗧 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 𝗜𝗙:
 
-⌲ *YOU'RE BELOW 15.*
+⌲ *YOU'RE BELOW 17.*
 
 ⌲ *YOU'RE A PROSHIPPER, RACIST, OR PEDO.*
 
